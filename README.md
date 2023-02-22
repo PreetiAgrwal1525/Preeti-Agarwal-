@@ -1,2 +1,2 @@
-# Preeti-Agarwal-
+# Hi 👋, I'm Preeti Agarwal
 ABOUT ME
